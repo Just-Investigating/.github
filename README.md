@@ -1,2 +1,0 @@
-# hiya
-GitHub profile information
